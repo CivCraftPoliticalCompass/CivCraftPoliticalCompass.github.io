@@ -1,0 +1,1 @@
+# CivCraftPoliticalCompass.github.io
